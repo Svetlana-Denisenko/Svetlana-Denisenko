@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Svetlana Denisenko
+- 👋 Hi, I’m Svetlana Denisenko
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning to be a computer linguist
 - ⚡ Fun fact: This is not a place for fun
